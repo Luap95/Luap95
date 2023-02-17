@@ -2,7 +2,7 @@
 
 ##
 
-<img src="https://cdn.discordapp.com/attachments/1014668031877718017/1070776034959560805/Code_typing-bro.svg" width="500">
+<img src="https://cdn.discordapp.com/attachments/1014668031877718017/1075936489831157810/Gamer_Room__Cyberpunk_ExceptRea.gif" width="500">
 
 ##
 
